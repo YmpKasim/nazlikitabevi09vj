@@ -1,1 +1,0 @@
-# nazlikitabevi09vj
